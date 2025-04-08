@@ -1,1 +1,1 @@
-siała baba mak ala ma kota
+siala baba mak nie wiedziala jak ala ma kota
