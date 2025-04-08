@@ -1,1 +1,2 @@
-siała baba mak
+siala baba mak
+nie wiedziala jak
