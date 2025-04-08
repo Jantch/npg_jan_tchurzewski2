@@ -1,1 +1,1 @@
-siała baba mak
+siała baba mak ala ma kota
